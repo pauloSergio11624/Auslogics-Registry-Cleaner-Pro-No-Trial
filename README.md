@@ -1,0 +1,1 @@
+# Auslogics-Registry-Cleaner-Pro-No-Trial
